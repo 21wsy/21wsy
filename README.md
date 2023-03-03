@@ -1,3 +1,3 @@
-- 👋我是 不会编程的大学生；
+- 👋我是 IT菜鸟，学习中
 - 虚心学习探索，多多指教。
-- 408学习&生产实习&考研
+hope we can chat more and improve mutually.
